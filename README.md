@@ -1,3 +1,4 @@
 # Coldness
-![image](https://github.com/DarknessVortex/Coldness/assets/131282271/a473ee29-6584-4593-8927-20a2c2124697)
+![image](https://github.com/DarknessVortex/Coldness/assets/131282271/05f805f7-b3a5-4087-8cc3-7e7e7e1cd474)
 
+Buraiha trio:)
