@@ -1,7 +1,8 @@
 # Coldness
 ![image](https://github.com/DarknessVortex/Coldness/assets/131282271/34c122e2-a68b-4628-af52-b758ff21c62c)
+![image](https://github.com/DarknessVortex/Coldness/assets/131282271/1bf4f13d-b654-45eb-a906-42c8932f994b)
 
-![image](https://github.com/DarknessVortex/Coldness/assets/131282271/05f805f7-b3a5-4087-8cc3-7e7e7e1cd474)
-![image](https://github.com/DarknessVortex/Coldness/assets/131282271/02e5cf90-4758-4501-8638-0e3ddcf516a4)
+![image](https://github.com/DarknessVortex/Coldness/assets/131282271/bfb2b206-5f9a-46cc-b714-f285068d4f9c)
 
+![image](https://github.com/DarknessVortex/Coldness/assets/131282271/87500593-c6aa-4b62-b05a-a467c2d349fb)
 
